@@ -1,3 +1,5 @@
-# Saison 7 offsets
+# Fortnite 7.10 Offsets
 
-saison 7 offsets used for gamehacking for ex: project nova
+Fuck nova
+Fuck era
+Fuck all that nns
